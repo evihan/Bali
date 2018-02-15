@@ -1,1 +1,1 @@
-# Bali
+# Bali  majored in accounting in college and received a 3.7 GPA. My first job after graduation was at X Company, where I worked as…Then two years later I moved to Y Company, where my role included…Most recently I worked at Dunia Printing Digitally
